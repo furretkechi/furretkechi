@@ -1,4 +1,4 @@
-![akechi-all](https://github.com/furretkechi/furretkechi/assets/157264853/1e751c70-adff-48d5-bca0-747e7efa69fe)
+![BHWIYaM](https://github.com/furretkechi/furretkechi/assets/157264853/05de1c15-33bb-48aa-92fd-f3bea658542b)
 
 ### hi im stiles !!!<br>
 - all my interests, dni, byi, etc. is on my [carrd](https://furretkechi.carrd.co/)<br>
