@@ -7,6 +7,6 @@
 - if youre looking for me im usually near spawn or identityv area (right of genshin)
 - if you're curious about how to refer to me, go to my [pronouns page](https://pronouns.cc/@furretkechi)<br>
 - collect my pages ![slend](https://github.com/furretkechi/furretkechi/assets/157264853/c57f5e20-73cd-4b20-8fc8-08858a5c402e)
-### STOP WHISPERING ME ABOUT PARTY OR SUPPORTER LIMITS IDGAF AND I WILL NOT BE ANSWERING!!!!!!!!!!
+### STOP WHISPERING ME ABOUT PARTY OR SUPPORTER LIMITS WHATEVER ITS CALLED IDGAF AND I WILL NOT BE ANSWERING!!!!!!!!!!
 
 ![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)
