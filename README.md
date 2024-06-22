@@ -1,7 +1,7 @@
 ![BHWIYaM](https://github.com/furretkechi/furretkechi/assets/157264853/05de1c15-33bb-48aa-92fd-f3bea658542b)
 
 ### hi im stiles/leon !!!<br>
-- all my interests, dni, byi, etc. is on my [carrd](https://furretkechi.carrd.co/)<br>
+- all my interests, dni, byi, etc. is on my [carrd](https://crowfate.carrd.co/)<br>
 - if i dont respond just whisper me :P im often offtab<br>
 - my discord is furretkechi as well, just let me know you're sending a req otherwise i'll probs decline if i dont recognize you <br>
 - if youre looking for me im usually near spawn or identityv area (right of genshin)
