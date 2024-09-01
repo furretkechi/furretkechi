@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=furretkechi&color=red)<br>
+
 ![BHWIYaM](https://github.com/furretkechi/furretkechi/assets/157264853/05de1c15-33bb-48aa-92fd-f3bea658542b)
 
 ### hi im stiles/leon !!!<br>
@@ -10,4 +10,4 @@
 - collect my pages ![slend](https://github.com/furretkechi/furretkechi/assets/157264853/c57f5e20-73cd-4b20-8fc8-08858a5c402e) (sign my [guestbook](https://furretkechi.123guestbook.com) and [strawpage](https://furretkechi.straw.page))<br>
 ### STOP WHISPERING ME ABOUT PARTY OR SUPPORTER LIMITS WHATEVER ITS CALLED IDGAF AND I WILL NOT BE ANSWERING!!!!!!!!!!
 
-![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)<br>
+![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)<br>![](https://komarev.com/ghpvc/?username=furretkechi&color=red)
