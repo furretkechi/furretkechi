@@ -10,3 +10,4 @@
 ### STOP WHISPERING ME ABOUT PARTY OR SUPPORTER LIMITS WHATEVER ITS CALLED IDGAF AND I WILL NOT BE ANSWERING!!!!!!!!!!
 
 ![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)
+![](https://komarev.com/ghpvc/?username=furretkechi&color=red)
