@@ -2,7 +2,7 @@
 ![BHWIYaM](https://github.com/furretkechi/furretkechi/assets/157264853/05de1c15-33bb-48aa-92fd-f3bea658542b)
 
 ### hi im stiles/leon !!!<br>
-- all my interests, dni, byi, etc. is on my [carrd](https://shuakeyaoii.carrd.co) (thank you [ren](https://github.com/pomefiore) for making it :3)<br>
+- all my interests, dni, byi, etc. is on my [carrd](https://willpow3r.carrd.co) (matching with [ren](https://github.com/pomefiore) who also created it :3)<br>
 - if i dont respond just whisper me :P im often offtab<br>
 - i also leave my pony online a lot while im at work so if i take hours to respond thats likely the case<br>
 - my discord is furretkechi as well, just let me know you're sending a req otherwise i'll probs decline if i dont recognize you <br>
