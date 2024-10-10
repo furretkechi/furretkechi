@@ -1,7 +1,7 @@
 
 ![BHWIYaM](https://github.com/furretkechi/furretkechi/assets/157264853/05de1c15-33bb-48aa-92fd-f3bea658542b)
 
-### hello!!! please dont beg me to help with party limit. i dont give a shit and its annoying !!! anyone who disrespects this will get receive some /nice words/ and a perm block <3 other than that i dont bite :33C<br>
+### hello!!! please dont beg me to help with party limit. i dont give a shit and its annoying !!! anyone who disrespects this will get receive some _nice words_ and a perm block.. other than that i dont bite :33C<br>
 - all my interests, dni, byi, etc. is on my [carrd](https://willpow3r.carrd.co) (matching with [ren](https://github.com/pomefiore) who also created it :3)<br>
 - if i dont respond just whisper me :P im often offtab<br>
 - i also leave my pony online a lot while im at work so if i take hours to respond thats likely the case<br>
