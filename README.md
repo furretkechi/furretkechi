@@ -6,7 +6,8 @@
 - if i dont respond just whisper me :P im often offtab<br>
 - i also leave my pony online a lot while im at work so if i take hours to respond thats likely the case<br>
 - my discord is furretkechi as well, just let me know you're sending a req otherwise i'll probs decline if i dont recognize you <br>
-- if youre looking for me im usually near spawn or identityv area (right of genshin)
+- if youre looking for me im usually near spawn or identityv area (right of genshin) <br>
+- pls ask if u wanna be moots i likely wont follow back unless ik u <br>
 - if you're curious about how to refer to me, go to my [pronouns page](https://en.pronouns.page/@furretkechi) i just made a new one!!!<br>
 - collect my pages ![slend](https://github.com/furretkechi/furretkechi/assets/157264853/c57f5e20-73cd-4b20-8fc8-08858a5c402e) (sign my [guestbook](https://furretkechi.123guestbook.com) and [strawpage](https://furretkechi.straw.page))<br>
 
