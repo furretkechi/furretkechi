@@ -3,6 +3,7 @@
 
 ### hello!!! please dont beg me to help with party limit its annoying and im already in a party !!! pls stop asking im at my fucking limit :33c<br>
 - all my interests, dni, byi, etc. is on my [carrd](https://willpow3r.carrd.co) (matching with [ren](https://github.com/pomefiore) who also created it :3)<br>
+- (ignore that my interests on my carrd says life is strange twice i dont have the log in to fix it thats all ren)
 - if i dont respond just whisper me im often offtab<br>
 - i also leave my pony online a lot while im at work/asleep so if i take hours to respond/dont respond thats likely the case<br>
 - my discord is furretkechi as well, just let me know you're sending a req otherwise i'll probs decline if i dont recognize you <br>
