@@ -10,5 +10,6 @@
 - if youre looking for me im usually near spawn or identityv area (right of genshin) <br>
 - if you're curious about how to refer to me, go to my [pronouns page](https://en.pronouns.page/@furretkechi) i just made a new one!!!<br>
 - collect my pages ![slend](https://github.com/furretkechi/furretkechi/assets/157264853/c57f5e20-73cd-4b20-8fc8-08858a5c402e) (sign my [guestbook](https://furretkechi.123guestbook.com) and [strawpage](https://furretkechi.straw.page))<br>
+- i will block you if you sit on me too long<br>
 
 ![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)<br>![](https://komarev.com/ghpvc/?username=furretkechi&color=red)
