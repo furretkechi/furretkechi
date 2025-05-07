@@ -9,7 +9,7 @@
 - im 99.9% of the time near spawn, rarely may be in idv area (right of genshin)<br>
 - this is my [pronouns page](https://en.pronouns.page/@furretkechi) if u care<br>
 - collect my pages ![slend](https://github.com/furretkechi/furretkechi/assets/157264853/c57f5e20-73cd-4b20-8fc8-08858a5c402e) (sign my [strawpage](https://furretkechi.straw.page))<br>
-- please read my [guestbook](https://furretkechi.123guestbook.com) there is literally the funniest paragraph someone sent me 😭<br>
+- im keeping my [guestbook](https://furretkechi.123guestbook.com) on here cuz there is literally the funniest paragraph someone sent me 😭<br>
 - i will block you if you sit/stand on top of me too long it annoys me ✌️<br>
 
 ![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)<br>![](https://komarev.com/ghpvc/?username=furretkechi&color=red)
