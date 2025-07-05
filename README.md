@@ -10,6 +10,7 @@
 - collect my pages ![slend](https://github.com/furretkechi/furretkechi/assets/157264853/c57f5e20-73cd-4b20-8fc8-08858a5c402e) (sign my new [strawpage](https://scutellaria.straw.page) as of 5/8/25!!!)<br>
 - im keeping my [guestbook](https://furretkechi.123guestbook.com) on here cuz there is literally the funniest paragraph someone sent me 😭<br>
 - i will block you if you sit/stand on top of me too long it annoys me ✌️<br>
+- pls ask to take inspo from me...i likely wont mind it but it kinda freaks me out when someones almost a replica of something i made unprompted if that makes sense lol<br>
 
 
 ![black-mask-akechi-akechi](https://github.com/furretkechi/furretkechi/assets/157264853/a7530190-0b1d-4070-b97a-f082b306dd76)<br>![](https://komarev.com/ghpvc/?username=furretkechi&color=red)
